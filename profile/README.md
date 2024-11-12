@@ -1,4 +1,4 @@
-## Hi there 👋
+## This is the beginning of a new ERA. ✨
 
 <!--
 
